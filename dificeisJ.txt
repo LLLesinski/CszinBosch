@@ -1,0 +1,15 @@
+paleontologia
+coisaradinha
+papibaquigrafo
+consistencia
+concernencia
+beneplacito
+cornucopia
+agnostico
+hebdomadario
+iconoclasta
+hodiernamente
+concomitante
+incompreensivel
+antidesestabilizador
+eletroencefalografista
